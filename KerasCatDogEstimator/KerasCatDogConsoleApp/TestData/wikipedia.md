@@ -1,0 +1,2 @@
+Rbreidbrown, [Domestic cat with dilated pupils](https://commons.wikimedia.org/wiki/File:Domestic_Cat_Demonstrating_Dilated_Slit_Pupils.jpg),[CC BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0)
+[Chris Barber](https://www.flickr.com/photos/95609644@N00), [Terrier mixed-breed dog](https://commons.wikimedia.org/wiki/File:Terrier_mixed-breed_dog.jpg), [CC BY 2.0](https://creativecommons.org/licenses/by/2.0)
